@@ -17,4 +17,6 @@ ___The purpose of this game is to participate in a dispute and decide by random.
 
 ## The Author
 *https://t.me/vladiikkkkkkkkk*
+
+
 ![photo_2023-04-05_22-19-01](https://user-images.githubusercontent.com/78139624/230151166-e7d13413-eb34-4a3c-a651-dc53d5bb5727.jpg)
